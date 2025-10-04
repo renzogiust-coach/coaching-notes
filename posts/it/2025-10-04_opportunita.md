@@ -18,6 +18,7 @@ Alcuni temi si esauriscono in una sessione, altri hanno bisogno di molto più te
 Infine, sento di ritornare ad una parola che ho utilizzato all'inizio: opportunità.
 
 👉 Opportunità personale: per trovare chiarezza, nuove risposte, nuove direzioni.
+
 👉 Opportunità per le organizzazioni: la crescita personale alimenta la crescita aziendale.
 
 Il coaching, in ogni contesto, spacca. (vabbè, sono di parte) 😃 
